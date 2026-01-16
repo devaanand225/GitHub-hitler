@@ -19,7 +19,7 @@ D Gowry Rejith
 Devkrishnan H P
 Aslah Ashraf 
 Adwayth Arun 
-Devaanand s
+Devaanand s present 
 Anagha T A
 Deepak P
 Deni Ben Simon 
